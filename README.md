@@ -16,4 +16,3 @@ Here are some ideas to get you started:
 -->
 - 🌱 I’m currently learning in University of Lampung
 - 💬 Ask me about in my instagram @frmnahmdd
-- I'm still learn 
