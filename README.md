@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - 🌱 I’m currently learning in University of Lampung
-- 💬 Ask me about in my instagram @frmnahmdd
+- 💬 Ask me about in my facebook
