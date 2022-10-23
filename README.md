@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- I’m currently learning in University of Lampung ✨
+- ✨ I’m currently learning in University of Lampung ✨
 - 💬 Ask me about in my instagram @frmnahmdd
